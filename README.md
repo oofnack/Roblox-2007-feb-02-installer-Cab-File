@@ -5,4 +5,5 @@ i do not know much but the thing i wana try to do is see if we can get through t
 p.s, there was an actual roblox.cab file but its gone
 
 what i know:
-*1 there was apparently a roblox cd for some reason
+
+1 there was apparently a roblox cd for some reason
